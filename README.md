@@ -18,3 +18,14 @@ It's up to all of you to make the change, but I will use this space to highlight
 
 I'll begin posting sermons by text here and recording them in video elsewhere before the next Montclair PTA meeting March 12.
 
+...
+
+Topics to be discussed:
+
+1. "What's love got to do with it?" - Children of divorce are being re-traumatized
+1. "Vienna waits for you" - Making Montclair safe for retirees' privacy again
+1. "Tramps like us" - Respecting the Federal Government's security agencies in the era of coups
+1. "They're selling postcards for the hanging" - Mental health and Reality TV should not create "others" in a healthy community
+1. "It must be exhausting always rooting for the anti-hero" - The need to reach out to other parent's damaged children, discreetly and without seeking reward or credit
+1. "It takes a village" - Unteaching teenage boys stalking, spying, and terrorism
+
