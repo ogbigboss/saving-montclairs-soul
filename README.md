@@ -24,7 +24,7 @@ Topics to be discussed:
 
 1. ?/??/24 - "Allow me to reintroduce myself" - Intro
 1. ?/??/24 - "What's love got to do with it?" - Children of divorce are being re-traumatized
-1. ?/??/24 - "Vienna waits for you" - Making Montclair safe for retirees' privacy again
+1. ?/??/24 - "Is that what you get for your money?" - A pause on morals for a budget breakdown of the attempt to smear me vs. options to stop spending $100k-250k a month on a team of people failing to smear me in such a way that no one else will be able to due to their failures proving me right and them ~~left~~ wrong
 1. ?/??/24 - "Tramps like us" - Respecting the Federal Government's security agencies in the era of coups
 1. ?/??/24 - "Your love is like bad medicine" - Committing medical malpractice and then hiding it in front of a wealthy community sets medicine back to the [biblical era](https://medschool.ucla.edu/blog-post/modern-hippocratic-oath-holds-the-underlying-values-of#:~:text=Written%20in%20the%205th%20century,and%20act%20in%20patients'%20interests.) or at best the [Nazi, pre Nuremberg code era](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2805%2960641-1/abstract).
 1. ?/??/24 - "They're selling postcards of the hanging" - Mental health and Reality TV should not create "others" in a healthy community
