@@ -22,10 +22,12 @@ I'll begin posting sermons by text here and recording them in video elsewhere be
 
 Topics to be discussed:
 
-1. "What's love got to do with it?" - Children of divorce are being re-traumatized
-1. "Vienna waits for you" - Making Montclair safe for retirees' privacy again
-1. "Tramps like us" - Respecting the Federal Government's security agencies in the era of coups
-1. "They're selling postcards for the hanging" - Mental health and Reality TV should not create "others" in a healthy community
-1. "It must be exhausting always rooting for the anti-hero" - The need to reach out to other parent's damaged children, discreetly and without seeking reward or credit
-1. "It takes a village" - Unteaching teenage boys stalking, spying, and terrorism
+1. ?/??/24 - "Allow me to reintroduce myself" - Intro
+1. ?/??/24 - "What's love got to do with it?" - Children of divorce are being re-traumatized
+1. ?/??/24 - "Vienna waits for you" - Making Montclair safe for retirees' privacy again
+1. ?/??/24 - "Tramps like us" - Respecting the Federal Government's security agencies in the era of coups
+1. ?/??/24 - "They're selling postcards of the hanging" - Mental health and Reality TV should not create "others" in a healthy community
+1. ?/??/24 - "Your love is like bad medicine" - Committing medical malpractice and then hiding it in front of a wealthy community sets medicine back to the [biblical era](https://medschool.ucla.edu/blog-post/modern-hippocratic-oath-holds-the-underlying-values-of#:~:text=Written%20in%20the%205th%20century,and%20act%20in%20patients'%20interests.)
+1. ?/??/24 - "It must be exhausting always rooting for the anti-hero" - The need to reach out to other parent's damaged children, discreetly and without seeking reward or credit
+1. ?/??/24 - "It takes a village" - Unteaching teenage boys stalking, spying, and terrorism
 
