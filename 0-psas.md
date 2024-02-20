@@ -74,3 +74,29 @@ I'd like to think my annual trips back to Montclair could be seen as something o
 
 Remember: I brought the crowd here, I can bring them back. People just like following me, I guess.
 
+### 2/20/24 5:29 PM
+
+#### "Is that what you get for your money?" preview
+
+[video](https://www.dropbox.com/scl/fi/83ffzdtqm0hveefk70wf0/2024-02-20-17-46-06.mkv?rlkey=tqp53jmw86isv0f7g6e2gry7b&dl=00)
+
+I'm going to make a monthly video series questioning the efficacy of the smear campaign against me, and whether it's worth it to continue spending six figures a month on it, considering that it's gotten the funders nowhere.
+
+I think it's worth it as a matter of financial due diligence to hear my perspective on those attempting to derail my future on your behalf before signing another series of checks.
+
+I'll go into detail but the gist of the thing is this: they're not doing anything new.
+
+You're spending six figures and all they do is rent the same cars, sit around the same houses, occasionally walk a rented dog, and look or gesture to their right or left - no creativity! No progress! If they're telling you otherwise, you've just found another series of consultants that are good at telling their clients what they want to hear - and they're probably bragging to other consultants about how easy it is to milk you for cash, tarnishing your reputations. Anyway.
+
+Shouldn't I have gone crazy by now? You literally set them up with a false psychological research experiment, I got an IRB to cancel it, and then they revealed it was over by sleep depriving me, proving they didn't need to worry about medical harm. When they do change their tactics, they reveal your previous efforts were over. They keep blowing their own cover.
+
+Where's the beef? I'll tell you where - in their mouths.
+
+All these people are doing are taking your money, renting housing units in Montclair, and then getting take out and meals at many of the fine cuisines in town (check out Charm Thai btw!).
+
+Anyway, that's the gist, though I'll further detail it later. I can't tell if you're funding these yokels on a quarterly or monthly basis, but I'm going to hedge my bet by offering a review of their services every month.
+
+And yes, finally - if their worth was to prevent me from suing or holding you legally accountable, and I no longer wish to, what's the point of all this?
+
+That said, I will continue using it as leverage to prove to this township, and particularly it's parenting community, that they need a spiritual awakening, so it works for me. But I think you should know what you're getting out of your money, it's a lot to spend on what could be nothing at all.
+
