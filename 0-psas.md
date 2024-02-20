@@ -51,3 +51,26 @@ And love doesn't need nor seek a reward other than it's own existence.
 So I'd like to say, again, that I am no longer seeking financial or legal compensation for the actions taken against me, no matter how illegal or medically unethical they were.
 
 I only seek value out of sharing my love for change, and to see this community of Montclair NJ change through these events such that it can learn to greet celebrity, fame, and wealth as a vehicle for love, and not for vengeance.
+
+### 2/20/24 4:03 PM
+
+Growing up in Montclair, one thing has always been uncertain: Will that restaurant / store survive?
+
+To the Montclair small business association: I know many of you, particularly the restaurants on Bloomfield near the MC Hotel, as well as the Hotel itself, have experienced a great boon by this religious event we're all living through. You don't want this to end, and many of you may need it to continue.
+
+Here is my offer to you: many religious events are commemorated with an annual holiday. I'm not sure what day - or days - would be best, perhaps maybe a week, but if this ends and I am in a decent enough position in life, I promise that I'll come back every year, and I will encourage the C*lb**ts, the R*d*e**, and other prominent residents to invite their friends at this time. In the spirit of the event, I'll walk around town ignoring all of them and stopping by places for coffee while they spend more money then I ever could.
+
+As a township, ask yourself this: is one boom worth it, or would an annual event that guarantees a rearrival, coordinated against shows at the Welmont perhaps, be better?
+
+Let's make the long term play here gang, not just for the future of Montclair's wayward youth, but for the future of Montclair's small businesses as well.
+
+Just want you to know I'm thinking of how to preserve the financial growth that would turn into a vacuum if this event ends, and I'll keep the small business owners of Montclair in mind. As long as I am allowed to continue walking God's path unhampered, I will make sure God's path comes back to Montclair.
+
+Might I be risking turning into a pillar of salt? I don't think so.
+
+As high schoolers, some of us walked eastward every now and then to an underpass which was hidden enough for us to smoke weed and chill. We'd call it Mecca, given that we had to walk east. It was in Bloomfield, technically, but I digress.
+
+I'd like to think my annual trips back to Montclair could be seen as something of a pilgrimage to Mecca: a Mecca of small business success!
+
+Remember: I brought the crowd here, I can bring them back. People just like following me, I guess.
+
