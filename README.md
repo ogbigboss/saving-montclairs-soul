@@ -24,9 +24,9 @@ Topics to be discussed:
 
 1. 2/19/24 - [text](00-intro.md) - [video](https://www.dropbox.com/scl/fi/ke9fs3pzikt9zvxvodo7l/2024-02-19-18-39-46.mkv?rlkey=z4lsfpqb53h7vsb63gegkis35&dl=0) - "Allow me to reintroduce myself" - Intro
 1. ?/??/24 - "What's love got to do with it?" - Children of divorce are being re-traumatized
+1. ?/??/24 - "Is that what you get for your money? (pt. I of a monthly series)" - A pause on morals for a budget breakdown of the attempt to smear me vs. options to stop spending $100k-250k a month on a team of people failing to smear me in such a way that no one else will be able to due to their failures proving me right and them ~~left~~ wrong
 1. ?/??/24 - "Tramps like us" - Respecting the Federal Government's security agencies in the era of coups
 1. ?/??/24 - "Your love is like bad medicine" - Committing medical malpractice and then hiding it in front of a wealthy community sets medicine back to the [biblical era](https://medschool.ucla.edu/blog-post/modern-hippocratic-oath-holds-the-underlying-values-of#:~:text=Written%20in%20the%205th%20century,and%20act%20in%20patients'%20interests.) or at best the [Nazi, pre Nuremberg code era](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2805%2960641-1/abstract).
-1. ?/??/24 - "Is that what you get for your money?" - A pause on morals for a budget breakdown of the attempt to smear me vs. options to stop spending $100k-250k a month on a team of people failing to smear me in such a way that no one else will be able to due to their failures proving me right and them ~~left~~ wrong
 1. ?/??/24 - "They're selling postcards of the hanging" - Mental health and Reality TV should not create "others" in a healthy community
 1. ?/??/24 - "It must be exhausting always rooting for the anti-hero" - The need to reach out to other parent's damaged children, discreetly and without seeking reward or credit
 1. ?/??/24 - "I believe the children are our future" / "It takes a village" - Unteaching teenage boys stalking, spying, and terrorism
