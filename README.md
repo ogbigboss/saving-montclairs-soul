@@ -29,5 +29,5 @@ Topics to be discussed:
 1. ?/??/24 - "Is that what you get for your money?" - A pause on morals for a budget breakdown of the attempt to smear me vs. options to stop spending $100k-250k a month on a team of people failing to smear me in such a way that no one else will be able to due to their failures proving me right and them ~~left~~ wrong
 1. ?/??/24 - "They're selling postcards of the hanging" - Mental health and Reality TV should not create "others" in a healthy community
 1. ?/??/24 - "It must be exhausting always rooting for the anti-hero" - The need to reach out to other parent's damaged children, discreetly and without seeking reward or credit
-1. ?/??/24 - "It takes a village" - Unteaching teenage boys stalking, spying, and terrorism
+1. ?/??/24 - "I believe the children are our future" / "It takes a village" - Unteaching teenage boys stalking, spying, and terrorism
 
