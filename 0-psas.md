@@ -23,3 +23,20 @@ Much like the Ancient Egyptians, I don't think we have the scientific acumen to 
 Given how much of Montclair NJ's teenage and 20 year old population will represent the power structure that takes over in a world descending into Climate Change, it is why I feel so strongly that they must be untaught the negative lessons many of their parents taught them in this exercise of anti-fame. Will their children go on to persecute populations as their parents are teaching them such to preserve resources, or will they fight for justice and save the human population from as much death as possible?
 
 Unless Atwood is a prophet, I'm hoping that the work we're doing here to better Montclair NJ can indeed prevent the Patriarchal dystopia represented by _The Handmaid's Tale_.
+
+### 2/19/24 11:03 PM
+
+An announcement: I am no longer seeking compensation, in either financial form or via the codifying of medical consent etc laws to prevent this. In the past I've said as much to just underline that what you were doing to me was criminal, in an effort to get you to go away.
+
+Had I realized divorce lawyers were advertising their services in front of potential celebrity clientele when I started to speak this way - which was mid 2022 by the way - I maybe would've taken a different tact, as only divorce lawyers would see it as a challenge to break the law brazenly and get away with it to prove to their clients they would do anything to screw over their ex. I guess it's one way to make a living.
+
+However, I now realize that God's will for me - to help heal the community of Montclair NJ, particularly it's children - will be stunted if I were to receive compensation. I do not want children to see my path as a way to a fortune, even if it is just.
+
+I also realize that the events that caused you to come after me were due to how unique of a person I am, and nothing else. I'm guessing a certain sister had made me a small subject of Hollywood fame before my own sister did, but that's a pill to take for another day. It's just to say, I've taken the tact I have - trying to get you to go away based on pointing out your criminal behavior - to prevent you from doing this to other people. But... the reason you did this to me is because, well, I'm a unique One.
+
+I no longer fear you going after other people like this considering how unique I am, therefore I don't need the compensation in financial or legal form. It would also teach the wrong lesson to the corrupted parents, whom would later be able to claim my moral stances were fraudulent efforts at a pay off. They are not.
+
+I'll outline this and more in my "Is that what you get for your money" budget analysis. I'm guessing your lawyers see it as rational, and correctly, to continue spending six figures a month to come after me in the fear of the compensation you would owe me if you _didn't_ smear or frame me, and realizing the six figures was cheaper (though I imagine by 2025 that wouldn't be the case, hopefully that won't have to come to pass).
+
+But mostly, I'm walking God's path. I do think it'd be wise of you to compensate me somewhat in order to make it easier to sign away my right to make legal claims against you, but I'll leave that up to you. I just want this community to be able to heal itself, and it's children to learn from this to prepare for a growingly uncertain future coming from the heaven besides them as well as the hell within their own communities.
+
