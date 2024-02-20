@@ -40,3 +40,14 @@ I'll outline this and more in my "Is that what you get for your money" budget an
 
 But mostly, I'm walking God's path. I do think it'd be wise of you to compensate me somewhat in order to make it easier to sign away my right to make legal claims against you, but I'll leave that up to you. I just want this community to be able to heal itself, and it's children to learn from this to prepare for a growingly uncertain future coming from the heaven besides them as well as the hell within their own communities.
 
+### 2/20/24 12:52 PM
+
+After an evening of rest and a morning of reflection, I'd just like to double down on yesterday's position: I am no longer seeking compensation in financial or legal form, nor am I seeking any form of "revenge" or "vengeance" - I'm dropping the sword.
+
+I think god wanted me to understand my anger as less valuable than my love - while my anger allowed for this situation to reveal a true darkness within the heart of Montclair NJ's parenting and family community, it is my love that can truly heal it.
+
+And love doesn't need nor seek a reward other than it's own existence.
+
+So I'd like to say, again, that I am no longer seeking financial or legal compensation for the actions taken against me, no matter how illegal or medically unethical they were.
+
+I only seek value out of sharing my love for change, and to see this community of Montclair NJ change through these events such that it can learn to greet celebrity, fame, and wealth as a vehicle for love, and not for vengeance.
