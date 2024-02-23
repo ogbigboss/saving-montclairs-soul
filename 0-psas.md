@@ -100,3 +100,7 @@ And yes, finally - if their worth was to prevent me from suing or holding you le
 
 That said, I will continue using it as leverage to prove to this township, and particularly it's parenting community, that they need a spiritual awakening, so it works for me. But I think you should know what you're getting out of your money, it's a lot to spend on what could be nothing at all.
 
+### 2/23/24 11:50 AM
+
+Just a reminder / triple down - I am **not** seeking financial remuneration for the stalking, harassing, mental harm, and medically unethical non consensual psychological "research" which has broken my confidentiality and ruined my career. My previous efforts were to ensure nothing like this would happen to other people by the hands of those that have led this against me, but I've since come to accept myself as a unique spiritual event, so I doubt it will happen in my lifetime anyway. To those that seek to harm my future: go with God, you have my forgiveness, and I have no dependents that need me. Though I am alone, I hope my future will prove I've only been Alone Together.
+
