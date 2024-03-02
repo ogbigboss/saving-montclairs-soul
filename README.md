@@ -1,6 +1,6 @@
 # Sermons to Save Montclair's Soul
 
-Montclair NJ has been greatly damaged by the past 7 months and the attempt to make a false reality television show.
+Montclair NJ has been greatly damaged by the past 7 months and the attempt to make a false reality television show and the ensuing legal disciplinary investigation that show has caused.
 
 It's children - particularly it's teenage boys - have unfortunately been taught how to stalk, harass, and intimidate "others" - and get away with it. These children have been done unspeakable damage by being exposed to all this.
 
@@ -16,17 +16,12 @@ It's up to all of you to make the change, but I will use this space to highlight
 
 ...
 
-I'll begin posting sermons by text here and recording them in video elsewhere before the next Montclair PTA meeting March 12.
-
-...
-
 Topics to be discussed:
 
 1. 2/19/24 - [text](00-intro.md) - [video](https://www.dropbox.com/scl/fi/ke9fs3pzikt9zvxvodo7l/2024-02-19-18-39-46.mkv?rlkey=z4lsfpqb53h7vsb63gegkis35&dl=0) - "Allow me to reintroduce myself" - Intro
 1. 2/22/24 - [text](01-children-and-families.md) - [video](https://www.dropbox.com/scl/fi/n174ls8a1h49zt5i3yhci/2024-02-22-19-49-25.mkv?rlkey=7fvwbvf9jj4frm07xlcq5wrz2&e=1&dl=0) - "What's love got to do with it?" - Children are being traumatized and turned off to the concept of families, marriage, and child birth
-1. ?/??/24 - [preview text](0-psas.md#22024-529-pm) - [preview video](https://www.dropbox.com/scl/fi/83ffzdtqm0hveefk70wf0/2024-02-20-17-46-06.mkv?rlkey=tqp53jmw86isv0f7g6e2gry7b&dl=0) - "Is that what you get for your money? (pt. I of a monthly series)" - A pause on morals for a budget breakdown of the attempt to smear me vs. options to stop spending $100k-250k a month on a team of people failing to smear me in such a way that no one else will be able to due to their failures proving me right and them ~~left~~ wrong
-1. ?/??/24 - "Tramps like us" - Respecting the Federal Government's security agencies in the era of coups
-1. ?/??/24 - "Your love is like bad medicine" - Committing medical malpractice and then hiding it in front of a wealthy community sets medicine back to the [biblical era](https://medschool.ucla.edu/blog-post/modern-hippocratic-oath-holds-the-underlying-values-of#:~:text=Written%20in%20the%205th%20century,and%20act%20in%20patients'%20interests.) or at best the [Nazi, pre Nuremberg code era](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2805%2960641-1/abstract).
+1. ?/??/24 - "I seen you walking 'round Chinatown" - A personal appeal to the State Bar Associations of California and (probably) New York
+1. ?/??/24 - "Your love is like bad medicine" - Committing medical malpractice, even in the scope of a bar disciplinary investigation, and then hiding it in front of a wealthy community sets medicine back to the [biblical era](https://medschool.ucla.edu/blog-post/modern-hippocratic-oath-holds-the-underlying-values-of#:~:text=Written%20in%20the%205th%20century,and%20act%20in%20patients'%20interests.) or at best the [Nazi, pre Nuremberg code era](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2805%2960641-1/abstract).
 1. ?/??/24 - "They're selling postcards of the hanging" - Mental health and Reality TV should not create "others" in a healthy community
 1. ?/??/24 - "It must be exhausting always rooting for the anti-hero" - The need to reach out to other parent's damaged children, discreetly and without seeking reward or credit
 1. ?/??/24 - "I believe the children are our future" / "It takes a village" - Unteaching teenage boys stalking, spying, and terrorism
